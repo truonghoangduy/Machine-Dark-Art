@@ -1,2 +1,2 @@
 # Machine-Dark-Art
-Are we BELIEVING what we see on the 🔎 SCREEN 🖥️? Or we just seeing 👾 ( Machine ) fraud us  😂🤏 ? 
+This repository will contain the process of what things that Machine 👾 evil technique could capable of.
